@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+- Rains (Its raining outside)
+- A hot cup of masala tea
+- A two-wheeler drive in the rains
+- A road trip
+- To NOT wake up until my mom shouts
