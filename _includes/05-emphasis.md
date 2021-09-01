@@ -1,1 +1,7 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+*Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.*
+
+
+**Albert Einstein**
+
+
+
